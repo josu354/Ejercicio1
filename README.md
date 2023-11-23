@@ -1,1 +1,2 @@
-Adjunto los 3 ejercicios del primer trabajo. :D
+Adjunto los 3 ejercicios del primer trabajo.
+:D
